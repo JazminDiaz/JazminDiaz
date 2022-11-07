@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **job placement.**
 
-- ⚡ Fun fact (I have two french bull dogs.)
+- ⚡ Fun fact I have two french bull dogs.
 
 - 💬 Ask me about **my coding journey.**
 
